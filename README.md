@@ -1,0 +1,2 @@
+# equipoplasticooriginal
+para la clase
